@@ -1,1 +1,1 @@
-Senior Staff Software Engineer / TLM at Google
+Senior Staff Software Engineer
